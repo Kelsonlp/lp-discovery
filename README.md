@@ -1,2 +1,2 @@
 # lp-discovery
-Im Kelson studient the Enginner of Software in Uniceplac 
+Im Kelson studient in Uniceplac the Enginner of Software 
